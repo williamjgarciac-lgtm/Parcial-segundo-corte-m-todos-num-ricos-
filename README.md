@@ -1,0 +1,1 @@
+# Parcial-segundo-corte-m-todos-num-ricos-
